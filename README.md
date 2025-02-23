@@ -2,6 +2,6 @@
 - 👀 I’m interested in Computer Science And Arts
 - 🌱 I’m currently learning Informatics and Computer Enginering
 - 💞️ I’m looking to collaborate on Website development
-- 📫 How to reach me by social media
+- 📫 @zarvx_
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im actually from Cinematography and interested at Computer Science
